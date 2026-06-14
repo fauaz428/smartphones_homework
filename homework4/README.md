@@ -1,1 +1,1 @@
-<img width="1900" height="908" alt="لقطة شاشة 2026-05-19 183457" src="https://github.com/user-attachments/assets/031edaa6-f36f-4287-ac2c-682955ce00a4" />
+<img width="1920" height="1020" alt="Desktop Screenshot 2026 04 13 - 21 47 52 84" src="https://github.com/user-attachments/assets/e68b7d23-48ec-45cc-ad91-c1dd640c0206" />
